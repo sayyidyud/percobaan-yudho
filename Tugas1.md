@@ -1,6 +1,6 @@
-nama saya sayyid yudho yud ##git 
+nama saya sayyid yudho Syaroffani biasa dipanggil yudho
+
 addsalam kenal
 ##
 halooo
-## maitance ##
-okee halooo
+## biodata ##
