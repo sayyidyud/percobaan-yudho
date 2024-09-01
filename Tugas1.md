@@ -1,6 +1,6 @@
-nama saya sayyid yudho Syaroffani biasa dipanggil yudho
+saya sayyid yudho Syaroffani biasa dipanggil yudho
 
-addsalam kenal
+lets see guys--_--
 ##
-halooo
 ## biodata ##
+cipungg gantenk
